@@ -1,0 +1,1 @@
+# Mamdani_2_klassa_2_input
